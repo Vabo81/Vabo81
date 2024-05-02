@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning javascript
 - 💞️ I’m looking to collaborate on workintech
 - 📫 How to reach ?
-- 😄 Pronouns: nig/ger
+- 😄 Pronouns: atak/t129
 - ⚡ Fun fact: war thunder
 
 <!---
