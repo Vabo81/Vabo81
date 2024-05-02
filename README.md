@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on workintech
 - 📫 How to reach ?
 - 😄 Pronouns: atak/t129
-- ⚡ Fun fact: war thunder
+- ⚡ Fun fact: i sold my soul to gaijin
 
 <!---
 Vabo81/Vabo81 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
